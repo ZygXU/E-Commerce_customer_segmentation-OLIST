@@ -2,7 +2,7 @@
 
 
 
-![alt text](https://storage.googleapis.com/kaggle-organizations/1942/thumbnail.png?r=51)
+![alt text](https://capslocknext.com/wp-content/uploads/2021/04/5d7a432087b52.png)
 
 
 ## Description
